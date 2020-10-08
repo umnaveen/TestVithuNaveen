@@ -54,6 +54,8 @@ D'esquives, des "shta-pow!" de putains de stonba Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
 Qu'il te ramène du vice
 
+Non laisse pas traîner ton filsLaisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisseLaisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène duviceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
+
 
 
 
