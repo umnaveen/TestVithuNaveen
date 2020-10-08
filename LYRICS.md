@@ -37,4 +37,12 @@ J'avais pas l'impression d'être plus coté qu'une caisse à l'argus
 Donc j'ai dû renoncer, trouver mes propres complices Mes partenaires de glisse, désolé si je m'immisce
 
 
+Mais laisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
+
+
+
+
+
+
+
 
