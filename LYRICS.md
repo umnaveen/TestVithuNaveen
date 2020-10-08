@@ -19,3 +19,4 @@ J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse
 Regarde-le, quand il parle, écoute-le!
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
 
+Mais laisse pas traîner ton fils Si tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
